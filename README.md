@@ -1,1 +1,1 @@
-hoge
+sano kaito metcha ganbaru
